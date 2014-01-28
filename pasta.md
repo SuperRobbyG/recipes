@@ -1,4 +1,4 @@
-# Pasta a la Boscaiola
+# Pasta Boscaiola
 
 ## Ingredients
 * Your choice of small pasta noodle (fusilli anyone?)
